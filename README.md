@@ -1,6 +1,6 @@
-Interview with Dr. Ian Whishaw
-04-15-2024
-The University of Lethbridge
+Interview with Dr. Ian Whishaw  
+04-15-2024  
+The University of Lethbridge  
 
 Ian Q. Whishaw earned his M.Sc. in Psychology from the University of Calgary in 1968 followed by completing his Ph.D. in 1971 at the University of Western Ontario. He moved to The University of Lethbridge in 1970, as an assistant professor where he was responsible for teaching five different courses per semester.  
 
