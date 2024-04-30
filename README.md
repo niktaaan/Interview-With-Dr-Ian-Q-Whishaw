@@ -8,5 +8,5 @@ Author of three books in Neuroscience, including “Fundamentals of Human Neur
 
 Renowned as a leading behavioral neuroscientist, Dr. Whishaw's research has significantly influenced our understanding of movement and the motor cortex, spatial navigation, and the behavior of laboratory rats . With over 500 publications and nearly 50,000 citations, his scholarly impact is profound. Recognized by the Institute for Scientific Information as one of the most cited neuroscientists globally, Dr. Whishaw's h-index of 112 places him among the foremost researchers in the field. Notably, he holds the distinction of being one of ten Canadians and the sole Albertan to achieve the highest h-index among neuroscientists in Canada annually. 
 
-This interview took place to mark the last day of the 'Neuroscience Research Dialogue' class in 2024.
+This interview took place to mark the last day of the 'Neuroscience Research Dialogues' class in 2024.
 
